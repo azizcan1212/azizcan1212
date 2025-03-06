@@ -1,6 +1,6 @@
 
 <h1 align="center">Hi 👋, I'm Azizcan</h1>
-- 📫 How to reach me **azizcan.tam@outlook.com**
+- 📫 How to reach me **tamazizcan407@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
